@@ -1,1 +1,1 @@
-# home
+Bu sayt hali ishlanmoqda
